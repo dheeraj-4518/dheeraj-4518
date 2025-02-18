@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **saidheeraj222004@gmail.com**
 
+- 📄 Know about my experiences [file:///C:/Users/Sai%20Dheeraj/Downloads/Updated_Resume%20(1).pdf](file:///C:/Users/Sai%20Dheeraj/Downloads/Updated_Resume%20(1).pdf)
+
 - ⚡ Fun fact **I think I'm funny**
 
 <h3 align="left">Connect with me:</h3>
